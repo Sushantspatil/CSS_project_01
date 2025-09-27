@@ -1,1 +1,0 @@
-<!-- Need to put this as repo on github also need to add some sections of photos regarding the business -->
